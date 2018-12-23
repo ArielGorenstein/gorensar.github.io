@@ -1,1 +1,0 @@
-# gorensar.github.io
